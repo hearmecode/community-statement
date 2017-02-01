@@ -14,4 +14,9 @@ We believe that diversity is necessary for a vibrant, flourishing community. We 
 
 In service of this, we will be partnering with local nonprofit organizations to volunteer our time and talent to the pursuit of justice.
 
--- Hear Me Code
+-- Hear Me Code 
+
+Signing on in support,
+
+Tech Lady Hackathon
+
